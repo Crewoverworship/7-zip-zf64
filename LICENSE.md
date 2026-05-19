@@ -1,4 +1,4 @@
-# 
+# rare CCleaner para PC addons é o melhor CCleaner para PC addons com busca de arquivos e exclusao de arquivos. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
